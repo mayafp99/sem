@@ -1,1 +1,1 @@
-aju nice
+aju nice!
